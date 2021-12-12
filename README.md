@@ -15,6 +15,7 @@
 - 2 tbsp chickpea flour
 - 1/2 tsp baking soda
 - avocado oil for frying
+
 ### Steps
 1. The night before, soak the dried chickpeas in water. Make sure the water covers the chickpeas by 2-3 inches, as they'll triple in size.
 2. Drain and rinse the chickpeas and add them to your food processor.
@@ -26,6 +27,7 @@
 8. To deep dry the falafel, add about 3 inches of oil to a pot on medium heat. Heat the oil to 350F.
 9. Cook the falafel in batches (about 6-8 at a time) for 1-2 minutes or until golden. Use a skimmer to check the color of the falafel and make sure they don't over cook. Then remove them to a paper towel-lined plate.
 10. Serve the falafel immediately, while warn and crispy on the outside.
+
 ### Notes
 - Falafel are best golden on the outsid, not charred. Make sure your oil doesn't get too hot. If it does, the outside will cook too fast before the inside can warm up.
 - The falafel should not break apart while cooking. They're slightly fragile, but should certainly hold together and retain their shape. If they don't, see my tip above about adding more flour or water.
@@ -41,6 +43,7 @@
 - 1/2 tsp sea salt
 - 1/4 tsp sea salt
 - 1/4 tsp cumin
+
 ### Steps
 1. Whisk everything till creamy
 2. Drizzle on top of the falafel.

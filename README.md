@@ -1,3 +1,5 @@
+[Back to homepage](https://ah-jia.github.io/)
+
 # Falafel (Fried or Baked)
 
 ## Falafel
@@ -47,3 +49,5 @@
 ### Steps
 1. Whisk everything till creamy
 2. Drizzle on top of the falafel.
+
+[Back to homepage](https://ah-jia.github.io/)

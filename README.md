@@ -1,6 +1,6 @@
 [Back to homepage](https://ah-jia.github.io/)
 
-# Falafel (Fried or Baked)
+# FALAFEL (FRIED OR BAKED)
 
 ## Falafel
 ### Ingredients
@@ -25,15 +25,15 @@
 4. Transfer the falafel mixture to a bowl and add the chickpea flour and baking soda. Stir together, then cover or add a lid.
 5. Refrigerate the mixture for 30 minutes to one hour.
 6. Use yor hands, an ice cream scoop or falafel scoop to form the falafel into balls or patties. If you find the mixture is too wet, you can add another tablespoon of chickpea flour. If it's too dry and crumbly, you can add a teaspoon or two of water or lemon juice.
-7. Once the falafel are formed, you can cook them by your preferred method mentioned above.
-8. To deep dry the falafel, add about 3 inches of oil to a pot on medium heat. Heat the oil to 350F.
-9. Cook the falafel in batches (about 6-8 at a time) for 1-2 minutes or until golden. Use a skimmer to check the color of the falafel and make sure they don't over cook. Then remove them to a paper towel-lined plate.
-10. Serve the falafel immediately, while warn and crispy on the outside.
+7. Once the falafel are formed, you can cook them by your preferred method mentioned above. (Fried or Baked)
+8. To deep fry, heat up enough oil to fully submerge the falafel and fry till brown. Then remove them to a paper towel-lined plate.
+9. Serve the falafel immediately, while warm and crispy on the outside.
+10. To bake, arrange falafel on a baking sheet lined with parchment paper, brush with oil and bake in preheated oven 175 deg C till brown.
 
 ### Notes
-- Falafel are best golden on the outsid, not charred. Make sure your oil doesn't get too hot. If it does, the outside will cook too fast before the inside can warm up.
+- Falafel are best golden on the outside, not charred. Make sure your oil doesn't get too hot. If it does, the outside will cook too fast before the inside can warm up.
 - The falafel should not break apart while cooking. They're slightly fragile, but should certainly hold together and retain their shape. If they don't, see my tip above about adding more flour or water.
-- Can you meal prep falafel? YES! Make the dough mixture and then freeze it for up to 2-3 months. Thaw the mixture in the fridge, stir it, then form in balls or patties and cook. Cooked falafel don't sotre well as the outside becomes soft.
+- Can you meal prep falafel? YES! Make the dough mixture and then freeze it for up to 2-3 months. Thaw the mixture in the fridge, stir it, then form in balls or patties and cook. Cooked falafel don't store well as the outside becomes soft.
 - 1 cup of dried chickpeas = 3 cups of soaked chickpeas
 
 ## Tahini Sauce
